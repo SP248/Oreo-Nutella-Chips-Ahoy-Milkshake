@@ -1,0 +1,1 @@
+This recipe is a mix of different types of of food all blended with milk and shaken unti it gets liquidy, and make sure it is not thick.
